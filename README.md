@@ -36,6 +36,6 @@ fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取
 顾家北写作：链接：https://pan.baidu.com/s/1eVKTuGqd3o5YiUCtAVrP7A 提取码：v6pg </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
 
-【欢迎加入托福gre备考夸夸qq群】865560622 </br>
-【欢迎加入雅思备考夸夸qq群】905505803 </br>
+【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
+【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
 
