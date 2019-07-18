@@ -21,7 +21,8 @@ Fiona链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w <
 fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取码：5xgj </br>
 威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
-
+托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
+智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 ## *GRE
 微臣Gre全程视频：链接：https://pan.baidu.com/s/1NJ-W_wovMfPEaKf2W-tjKA 提取码：15o2 </br>
 
@@ -35,7 +36,7 @@ fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取
 何琼听力：链接: https://pan.baidu.com/s/1WPK-C7rRR2mqAXV-DI3a3g 提取码: uenx </br>
 顾家北写作：链接：https://pan.baidu.com/s/1eVKTuGqd3o5YiUCtAVrP7A 提取码：v6pg </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
-
+剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
