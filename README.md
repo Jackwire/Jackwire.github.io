@@ -32,6 +32,9 @@ fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 ## *GRE
 微臣Gre全程视频：链接：https://pan.baidu.com/s/1NJ-W_wovMfPEaKf2W-tjKA 提取码：15o2 </br>
+救命800词汇：链接：https://pan.baidu.com/s/1yh9SRq5oqVOpTiTk2yQArA 提取码：t8uv </br>
+真题：链接：https://pan.baidu.com/s/1BC0KJh21ZFPD6A4S2SEtWQ 提取码：w49y </br>
+Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g507 </br>
 
 【欢迎加入托福gre备考夸夸qq群】865560622 </br>
 【欢迎加入雅思备考夸夸qq群】905505803 </br>
@@ -50,6 +53,8 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 模考软件：链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf </br> 
 考满分阅读：链接：https://pan.baidu.com/s/1AUW_vymt36U5s2SZesNpug 提取码：aamx </br> 
 先导入门和语法课：链接：https://pan.baidu.com/s/1TPKM9oOKPnwBWvSTYaPKIQ 提取码：dym7 </br>
+</br>
+</br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
