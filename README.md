@@ -46,7 +46,10 @@ fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 
 ## * Gmat
-链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf 
+GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVRKykAiiw 提取码：5l4x </br> 
+模考软件：链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf </br> 
+考满分阅读：链接：https://pan.baidu.com/s/1AUW_vymt36U5s2SZesNpug 提取码：aamx </br> 
+先导入门和语法课：链接：https://pan.baidu.com/s/1TPKM9oOKPnwBWvSTYaPKIQ 提取码：dym7 </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
