@@ -53,6 +53,10 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 模考软件：链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf </br> 
 考满分阅读：链接：https://pan.baidu.com/s/1AUW_vymt36U5s2SZesNpug 提取码：aamx </br> 
 先导入门和语法课：链接：https://pan.baidu.com/s/1TPKM9oOKPnwBWvSTYaPKIQ 提取码：dym7 </br>
+
+## *打卡小程序
+复制下面的链接在手机qq或者微信中打开 ，欢迎大家打卡
+https://sun.sharedaka.com/v2/habit/share_h5/visit?habitId=2399881&openId=ochvq0E3aVHraG4VpbMkHpbhn2pw&code=ae701f </br>
 </br>
 </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
