@@ -3,6 +3,13 @@
 -------------
  【声明】本资料是备考期间从网络中搜索获取，答主进行整理，无任何商业目的。所有资料请不要肆意传播，仅供自己复习备考。如版权方觉得侵犯版权，请联系我进行删除。
 <!---->
+## *百度云不限速下载
+https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下载 </br>
+
+## *翻墙指导
+谷歌访问助手，浏览器插件 https://github.com/haotian-wang/google-access-helper </br>
+使用指导 ： http://www.ggfwzs.com/
+
 ## *托福
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
 考虫全套：链接：https://pan.baidu.com/s/1dPIaHggibR6SEr8dvbNuSg 提取码：r4m8 </br>
