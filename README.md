@@ -1,5 +1,5 @@
 
-# 自用的托福雅思GRE资料分享
+# 自用的托福雅思GREGmat资料分享
 -------------
  【声明】本资料是备考期间从网络中搜索获取，答主进行整理，无任何商业目的。所有资料请不要肆意传播，仅供自己复习备考。如版权方觉得侵犯版权，请联系我进行删除。
 <!---->
@@ -37,6 +37,9 @@ fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取
 顾家北写作：链接：https://pan.baidu.com/s/1eVKTuGqd3o5YiUCtAVrP7A 提取码：v6pg </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
+
+## * Gmat
+链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf 
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
