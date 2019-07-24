@@ -24,8 +24,8 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 托你的福写作满分计划：链接：https://pan.baidu.com/s/1le4G-jWF5t75wT7dN-aP7w 提取码：7bl6 </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
 onepass写作：链接：https://pan.baidu.com/s/1DBsOe-kwRvcjlQTUlarJDQ 提取码：2p51 </br>
-Fiona链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
-fiona新新链接链接：https://pan.baidu.com/s/1HjYmKLgaqS5tlAkWAtuzzA 提取码：5xgj </br>
+Fiona听力链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
+fiona口语链接：https://pan.baidu.com/s/1v2MiDfKvRaaA_wHdGAaJAg 提取码：95p8 </br>
 威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
