@@ -18,6 +18,7 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
 威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
 黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
+子睿老师写作：链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
 美国申请全系列视频：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
 阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ 提取码：5zty </br>
