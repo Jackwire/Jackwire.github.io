@@ -41,10 +41,10 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 
 ## *雅思
 杜士明写作：链接: https://pan.baidu.com/s/10n3mfFepge4YRFFt1lr6ZA 提取码: z8aq </br>
-张天真口语：链接: https://pan.baidu.com/s/1x_UQkd7SAiOkUBJFELPjmQ 提取码: fq3w </br>
+张天真口语：链接: 链接：https://pan.baidu.com/s/1cMVMXf9tTeYIpDxZL1un0Q 提取码：rs10  </br>
 郭佳荣阅读：链接: https://pan.baidu.com/s/1GPiok5k-7wz0fwbRYg3LIQ 提取码: 68ti </br>
 何琼听力：链接: https://pan.baidu.com/s/1WPK-C7rRR2mqAXV-DI3a3g 提取码: uenx </br>
-顾家北写作：链接：https://pan.baidu.com/s/1eVKTuGqd3o5YiUCtAVrP7A 提取码：v6pg </br>
+顾家北写作：链接：链接：https://pan.baidu.com/s/1HyhEBySXjfl-BEeYTfy8Uw 提取码：ysl3 </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 
