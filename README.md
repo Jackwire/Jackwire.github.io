@@ -26,6 +26,7 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 onepass写作：链接：https://pan.baidu.com/s/1DBsOe-kwRvcjlQTUlarJDQ 提取码：2p51 </br>
 Fiona听力链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
 fiona口语链接：链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
+fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
 威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
