@@ -15,7 +15,7 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 考虫全套：链接：https://pan.baidu.com/s/1dPIaHggibR6SEr8dvbNuSg 提取码：r4m8 </br>
 小站全套：链接：https://pan.baidu.com/s/1UyCTa10kmlufq1dptZixQA 提取码：nbz2 </br>
 康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
-单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A提取码：pn3g </br>
+单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
 威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
 黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
