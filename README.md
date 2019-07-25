@@ -32,6 +32,10 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
+
+【欢迎加入托福gre备考夸夸qq群】865560622 </br>
+【欢迎加入雅思备考夸夸qq群】905505803 </br>
+</br>
 ## *GRE
 微臣Gre全程视频：链接：https://pan.baidu.com/s/1NJ-W_wovMfPEaKf2W-tjKA 提取码：15o2 </br>
 救命800词汇：链接：https://pan.baidu.com/s/1yh9SRq5oqVOpTiTk2yQArA 提取码：t8uv </br>
