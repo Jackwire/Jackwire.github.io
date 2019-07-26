@@ -11,11 +11,6 @@ https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下�
 使用指导 ： http://www.ggfwzs.com/
 
 ## *托福
-托福备考资料指导和老师推荐：</br>
-* 写作：黎老师，王子睿，小站李世优 </br>
-* 口语：Fiona, 小站大花，威学fancy </br>
-* 听力：Fiona, 微臣琦叔 </br>
-* 阅读：考满分费扬老师 </br>
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
 考虫全套：链接：https://pan.baidu.com/s/1dPIaHggibR6SEr8dvbNuSg 提取码：r4m8 </br>
 小站全套：链接：https://pan.baidu.com/s/1UyCTa10kmlufq1dptZixQA 提取码：nbz2 </br>
@@ -37,6 +32,12 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
+</br>
+托福备考资料指导和老师推荐：</br>
+* 写作：黎老师，王子睿，小站李世优 </br>
+* 口语：Fiona, 小站大花，威学fancy </br>
+* 听力：Fiona, 微臣琦叔 </br>
+* 阅读：考满分费扬老师 </br>
 
 【欢迎加入托福gre备考夸夸qq群】865560622 </br>
 【欢迎加入雅思备考夸夸qq群】905505803 </br>
