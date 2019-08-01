@@ -14,7 +14,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 
 ## *托福
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
-考虫全套：链接：https://pan.baidu.com/s/1dPIaHggibR6SEr8dvbNuSg 提取码：r4m8 </br>
+考虫全套：链接：https://pan.baidu.com/s/1Bka1tBA7rd8tEcAle2v7Cg 提取码：lvdd  </br>
 小站全套：链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
 康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
 单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
@@ -48,6 +48,9 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 微臣Gre全程视频：链接：https://pan.baidu.com/s/1NJ-W_wovMfPEaKf2W-tjKA 提取码：15o2 </br>
 救命800词汇：链接：https://pan.baidu.com/s/1yh9SRq5oqVOpTiTk2yQArA 提取码：t8uv </br>
 真题：链接：https://pan.baidu.com/s/1BC0KJh21ZFPD6A4S2SEtWQ 提取码：w49y </br>
+阅读200微臣：链接：https://pan.baidu.com/s/1pzsARWLPEBUcksM6dJnI4Q 提取码：p7xv </br>
+维夕写作：链接：https://pan.baidu.com/s/1TWPmUOqrEFoM0lAfqGRXxQ 提取码：imwb </br>
+要你的命3000：链接：https://pan.baidu.com/s/1FvrDbfqhaS-DMW5L0tJHAg 提取码：njv4  </br>
 Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g507 </br>
 
 【欢迎加入托福gre备考夸夸qq群】865560622 </br>
