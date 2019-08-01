@@ -3,12 +3,14 @@
 -------------
  【声明】本资料是备考期间从网络中搜索获取，答主进行整理，无任何商业目的。所有资料请不要肆意传播，仅供自己复习备考。如版权方觉得侵犯版权，请联系我进行删除。
 <!---->
-## *百度云不限速下载
-https://www.baiduwp.com/   打开这个网址，输入链接就可以直接下载 </br>
 
 ## *翻墙指导
 谷歌访问助手，浏览器插件 https://github.com/haotian-wang/google-access-helper </br>
 使用指导 ： http://www.ggfwzs.com/
+
+## *百度云不限速下载
+pandownload 可真是个神奇的软件，太好用了吧，昨天下载搞得我心力交瘁，结果今天用这款神奇软件十几分钟就下完了。
+https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的百度云链接就可以直接下载 </br>
 
 ## *托福
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
@@ -58,6 +60,7 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 何琼听力：链接: https://pan.baidu.com/s/1WPK-C7rRR2mqAXV-DI3a3g 提取码: uenx </br>
 顾家北写作：链接：链接：https://pan.baidu.com/s/1HyhEBySXjfl-BEeYTfy8Uw 提取码：ysl3 </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
+口语最新5到8月机经：链接：https://pan.baidu.com/s/1ngARt3wEveSD6mgri86iIQ 提取码：1fix </br>
 剑桥雅思4-13：链接：https://pan.baidu.com/s/1aimZmEbEZ6cSgHMNmdwfng 提取码：tnpn </br>
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 由于雅思资料已于和谐，请加群905505803免费获取，完整资料见图片 ![image](雅思资料目录.png)
