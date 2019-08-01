@@ -61,6 +61,7 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 顾家北写作：链接：链接：https://pan.baidu.com/s/1HyhEBySXjfl-BEeYTfy8Uw 提取码：ysl3 </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
 口语最新5到8月机经：链接：https://pan.baidu.com/s/1ngARt3wEveSD6mgri86iIQ 提取码：1fix </br>
+杨帅最新5到8月口语题库和范例：链接：https://pan.baidu.com/s/1apDjzFpq3fxxuLmS8dJFBQ 提取码：3uwg </br>
 剑桥雅思4-13：链接：https://pan.baidu.com/s/1aimZmEbEZ6cSgHMNmdwfng 提取码：tnpn </br>
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
 由于雅思资料已于和谐，请加群905505803免费获取，完整资料见图片 ![image](雅思资料目录.png)
