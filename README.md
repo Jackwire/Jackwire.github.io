@@ -45,6 +45,7 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 【欢迎加入雅思备考夸夸qq群】905505803 </br>
 </br>
 ## *GRE
+关于GRE备考，文件夹GRE有非常详细的指导，也可以点击 [GRE](https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/tree/master/GRE)
 微臣Gre全程视频：链接：https://pan.baidu.com/s/1NJ-W_wovMfPEaKf2W-tjKA 提取码：15o2 </br>
 救命800词汇：链接：https://pan.baidu.com/s/1yh9SRq5oqVOpTiTk2yQArA 提取码：t8uv </br>
 真题：链接：https://pan.baidu.com/s/1BC0KJh21ZFPD6A4S2SEtWQ 提取码：w49y </br>
