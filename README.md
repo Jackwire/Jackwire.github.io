@@ -33,6 +33,7 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
+托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
 </br>
 托福备考资料指导和老师推荐：</br>
 * 写作：黎老师，王子睿，小站李世优 </br>
@@ -74,13 +75,14 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 模考软件：链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf </br> 
 考满分阅读：链接：https://pan.baidu.com/s/1AUW_vymt36U5s2SZesNpug 提取码：aamx </br> 
 先导入门和语法课：链接：https://pan.baidu.com/s/1TPKM9oOKPnwBWvSTYaPKIQ 提取码：dym7 </br>
-【欢迎加入美英申请夸夸qq群】337699641，加群链接：点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
 </br>
 ## * 申请diy
 
 美国申请全系列视频,学校介绍：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
 材料准备和时间规划：链接：https://pan.baidu.com/s/1AECz1sA-pM4OfOrm34YM0A 提取码：853g </br>
 新东方申请问题答疑课：链接：https://pan.baidu.com/s/1y07ekIPzHCs2blopqYuVFA 提取码：cw7h </br>
+【欢迎加入美英申请夸夸qq群】337699641，点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
+
 </br>
 ## *打卡小程序
 复制下面的链接在手机qq或者微信中打开 ，欢迎大家打卡
