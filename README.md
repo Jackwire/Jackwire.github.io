@@ -22,7 +22,6 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
 子睿老师写作：链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
-美国申请全系列视频：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
 阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ 提取码：5zty </br>
 托你的福写作满分计划：链接：https://pan.baidu.com/s/1le4G-jWF5t75wT7dN-aP7w 提取码：7bl6 </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
@@ -75,7 +74,14 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 模考软件：链接: https://pan.baidu.com/s/1wG92Q2NgQ2IQNVvrz_QWHg 提取码: h6bf </br> 
 考满分阅读：链接：https://pan.baidu.com/s/1AUW_vymt36U5s2SZesNpug 提取码：aamx </br> 
 先导入门和语法课：链接：https://pan.baidu.com/s/1TPKM9oOKPnwBWvSTYaPKIQ 提取码：dym7 </br>
+【欢迎加入美英申请夸夸qq群】337699641，加群链接：点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
+</br>
+## * 申请diy
 
+美国申请全系列视频,学校介绍：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
+材料准备和时间规划：链接：https://pan.baidu.com/s/1AECz1sA-pM4OfOrm34YM0A 提取码：853g </br>
+新东方申请问题答疑课：链接：https://pan.baidu.com/s/1y07ekIPzHCs2blopqYuVFA 提取码：cw7h </br>
+</br>
 ## *打卡小程序
 复制下面的链接在手机qq或者微信中打开 ，欢迎大家打卡
 https://sun.sharedaka.com/v2/habit/share_h5/visit?habitId=2399881&openId=ochvq0E3aVHraG4VpbMkHpbhn2pw&code=ae701f </br>
