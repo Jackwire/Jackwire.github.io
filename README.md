@@ -82,9 +82,9 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 材料准备和时间规划：链接：https://pan.baidu.com/s/1AECz1sA-pM4OfOrm34YM0A 提取码：853g </br>
 新东方申请问题答疑课：链接：https://pan.baidu.com/s/1y07ekIPzHCs2blopqYuVFA 提取码：cw7h </br>
 【欢迎加入美英申请夸夸qq群】337699641，点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
-
 </br>
-## *打卡小程序
+
+## * 打卡小程序
 复制下面的链接在手机qq或者微信中打开 ，欢迎大家打卡
 https://sun.sharedaka.com/v2/habit/share_h5/visit?habitId=2399881&openId=ochvq0E3aVHraG4VpbMkHpbhn2pw&code=ae701f </br>
 </br>
