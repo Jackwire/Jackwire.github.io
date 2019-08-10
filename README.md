@@ -91,6 +91,11 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 复制下面的链接在手机qq或者微信中打开 ，欢迎大家打卡
 https://sun.sharedaka.com/v2/habit/share_h5/visit?habitId=2399881&openId=ochvq0E3aVHraG4VpbMkHpbhn2pw&code=ae701f </br>
 </br>
+
+## * 云短信，垃圾短信电话注册防止骚扰
+https://www.pdflibr.com/</br>
+
+使用方法打开链接就行，防止各种机构骚扰电话
 </br>
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
