@@ -56,10 +56,7 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 维夕写作：链接：https://pan.baidu.com/s/1TWPmUOqrEFoM0lAfqGRXxQ 提取码：imwb </br>
 要你的命3000：链接：https://pan.baidu.com/s/1FvrDbfqhaS-DMW5L0tJHAg 提取码：njv4  </br>
 Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g507 </br>
-
-【欢迎加入托福gre备考夸夸qq群】865560622 </br>
-【欢迎加入雅思备考夸夸qq群】905505803 </br>
-
+</br></br>
 ## *雅思
 杜士明写作：链接: https://pan.baidu.com/s/10n3mfFepge4YRFFt1lr6ZA 提取码: z8aq </br>
 张天真口语：链接: 链接：https://pan.baidu.com/s/1cMVMXf9tTeYIpDxZL1un0Q 提取码：rs10  </br>
@@ -71,7 +68,7 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 杨帅最新5到8月口语题库和范例：链接：https://pan.baidu.com/s/1iiccFSMBTI7zM1PzJwdgyA 提取码：nt12  </br>
 剑桥雅思4-13：链接：https://pan.baidu.com/s/1aimZmEbEZ6cSgHMNmdwfng 提取码：tnpn </br>
 剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
-由于雅思资料已于和谐，请加群905505803免费获取，完整资料见图片 ![image](雅思资料目录.png)
+由于雅思资料易于和谐，请加群905505803免费获取，完整资料见图片 ![image](雅思资料目录.png)
 
 ## * GMAT
 GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVRKykAiiw 提取码：5l4x </br> 
@@ -84,7 +81,7 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 美国申请全系列视频,学校介绍：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
 材料准备和时间规划：链接：https://pan.baidu.com/s/1AECz1sA-pM4OfOrm34YM0A 提取码：853g </br>
 新东方申请问题答疑课：链接：https://pan.baidu.com/s/1y07ekIPzHCs2blopqYuVFA 提取码：cw7h </br>
-【欢迎加入美英申请夸夸qq群】337699641，点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
+【欢迎加入留学申请夸夸qq群】337699641，点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
 </br>
 
 ## * 打卡小程序
