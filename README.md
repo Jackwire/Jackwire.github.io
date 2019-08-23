@@ -15,11 +15,19 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 
 ---
 ## *托福
+### 基础课程
+此部分包括了7天搞定英语语法，lisa美语发音，口语发音课程，各个机构的词汇课程：猴哥，张红岩，无老师，曲根10000词汇，词霸营等等，以及TED演讲视频集合 </br>
+单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
+
+### 全套课程（部分机构完整的听说读写课程）
+
+
+
+
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
 考虫全套：链接：https://pan.baidu.com/s/1Bka1tBA7rd8tEcAle2v7Cg 提取码：lvdd  </br>
 小站全套：链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
 康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
-单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
 威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
 黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
 子睿老师写作：链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
