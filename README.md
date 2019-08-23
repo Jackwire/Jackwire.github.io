@@ -17,18 +17,20 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ## *托福
 ### 基础课程
 此部分包括了7天搞定英语语法，lisa美语发音，口语发音课程，各个机构的词汇课程：猴哥，张红岩，无老师，曲根10000词汇，词霸营等等，以及TED演讲视频集合 </br>
-单词语音基础课（包括曲根词汇）：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
+&ensp 单词语音基础课：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
+&ensp 托福考试介绍：链接：https://pan.baidu.com/s/1em8zpjigG7zj5O4959ccFg 提取码：qdlw </br>
 
 ### 全套课程（部分机构完整的听说读写课程）
+考虫全套：链接：https://pan.baidu.com/s/1Bka1tBA7rd8tEcAle2v7Cg 提取码：lvdd  </br>
+威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
+小站全套：链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
+康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
+智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 
 
 
 
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
-考虫全套：链接：https://pan.baidu.com/s/1Bka1tBA7rd8tEcAle2v7Cg 提取码：lvdd  </br>
-小站全套：链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
-康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
-威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
 黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
 子睿老师写作：链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
@@ -42,7 +44,6 @@ fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomT
 威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
-智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
 </br>
 托福备考资料指导和老师推荐：</br>
