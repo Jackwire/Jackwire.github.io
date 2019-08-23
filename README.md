@@ -41,16 +41,26 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
 新东方李镇江老师听力：链接：https://pan.baidu.com/s/1xDO4ArBCkP6r5wX0bGOJFg 提取码：12ld </br>
 
+### 写作推荐课程
+**黎老师写作**：非常非常多干货的写作课程，包括信手，两分钟破题，语法团，俩百词，点句成金，超级多的录屏，每个录屏都是高质量，真的都能收获特别特别多，感觉像打通了任督二脉。</br>
+&emsp; 2018年11期黎老师写作链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
+&emsp; 2019年01期黎老师写作链接：https://pan.baidu.com/s/1K6QJfbfR0kpK86FvHNh8ZQ 提取码：3d8a </br>
+**子睿老师写作**：真正写作能力，不建议初学者，2018期链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
+onepass微臣写作：链接：https://pan.baidu.com/s/1DBsOe-kwRvcjlQTUlarJDQ 提取码：2p51 </br>
+kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ 提取码：5zty </br>
+托你的福写作满分计划：链接：https://pan.baidu.com/s/1le4G-jWF5t75wT7dN-aP7w 提取码：7bl6 </br>
+
+### 口语推荐课程
+**fiona口语**:独立口语就套二姐的段子就好啦一共十个段子超级好用，可以去喜马拉雅先听听托福口语Fiona的音频绝对不会失望哒，如果有半年以上时间备考的话，可以好好捋一捋fiona姐姐的课前礼包，好好背几遍单词，然后好好上课，课后好好练习。</br>
+&emsp; fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
+&emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
+
+
 
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
-黎老师写作：链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
-子睿老师写作：链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
-阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ 提取码：5zty </br>
-托你的福写作满分计划：链接：https://pan.baidu.com/s/1le4G-jWF5t75wT7dN-aP7w 提取码：7bl6 </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
-onepass写作：链接：https://pan.baidu.com/s/1DBsOe-kwRvcjlQTUlarJDQ 提取码：2p51 </br>
 fiona口语链接：链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
-fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
+fiona口语课资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
 威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
