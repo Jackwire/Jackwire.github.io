@@ -23,7 +23,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ### 全套课程（部分机构完整的听说读写课程）
 **威学全套**：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。 </br>
 &emsp; 2018年05期大班课程链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
-&emsp; 2019年01期大班课程链接：链接：https://pan.baidu.com/s/1p8q11JKTLu0ARt1bKg1j8Q 提取码：2i82 </br>
+&emsp; 2019年01期大班课程链接：链接：https://pan.baidu.com/s/1zizd2SdWdmqRiFXNIl_TCw 提取码：o1uh  </br>
 
 **小站全套**：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读 </br>
 &emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
