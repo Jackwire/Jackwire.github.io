@@ -17,13 +17,18 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ## *托福
 ### 基础课程
 此部分包括了7天搞定英语语法，lisa美语发音，口语发音课程，各个机构的词汇课程：猴哥，张红岩，无老师，曲根10000词汇，词霸营等等，以及TED演讲视频集合 </br>
-&ensp; 单词语音基础课：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
-&ensp; 托福考试介绍：链接：https://pan.baidu.com/s/1em8zpjigG7zj5O4959ccFg 提取码：qdlw </br>
+&emsp; 单词语音基础课：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
+&emsp; 托福考试介绍：链接：https://pan.baidu.com/s/1em8zpjigG7zj5O4959ccFg 提取码：qdlw </br>
 
 ### 全套课程（部分机构完整的听说读写课程）
+威学全套：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。
+&emsp; 2018年05期大班课程链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
+&emsp; 2019年01期大班课程链接：链接：https://pan.baidu.com/s/1zIh8hrM8TqnkWtD8HfIXIg 提取码：qwvg  </br>
+
+小站全套：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读
+&emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
+
 考虫全套：链接：https://pan.baidu.com/s/1Bka1tBA7rd8tEcAle2v7Cg 提取码：lvdd  </br>
-威学全套：链接：链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
-小站全套：链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
 康老师四箭齐发真题班：链接：https://pan.baidu.com/s/1K0rx4LsFdDn8b1bvHhpURg 提取码：s5a5 </br>
 智课网托福全套：链接：https://pan.baidu.com/s/15Vc4Z9WzXwTPJEY2y3h7MA 提取码：hdbf  </br>
 
