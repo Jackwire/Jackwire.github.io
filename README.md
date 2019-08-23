@@ -23,7 +23,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ### 全套课程（部分机构完整的听说读写课程）
 **威学全套**：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。 </br>
 &emsp; 2018年05期大班课程链接：https://pan.baidu.com/s/1ebty7t0OlnHF60BM7qtACw 提取码：kh4x </br>
-&emsp; 2019年01期大班课程链接：链接：https://pan.baidu.com/s/1zIh8hrM8TqnkWtD8HfIXIg 提取码：qwvg  </br>
+&emsp; 2019年01期大班课程链接：链接：https://pan.baidu.com/s/1p8q11JKTLu0ARt1bKg1j8Q 提取码：2i82 </br>
 
 **小站全套**：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读 </br>
 &emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
@@ -40,6 +40,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 &emsp; Fiona听力2018年08期链接：https://pan.baidu.com/s/1JSW5i4OuBQVt5x8SyJBF8g 提取码：t0dt </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
 新东方李镇江老师听力：链接：https://pan.baidu.com/s/1xDO4ArBCkP6r5wX0bGOJFg 提取码：12ld </br>
+kmf赵纯老师听力：链接：https://pan.baidu.com/s/1qasyBN4RCOacxEU2Sc2vrw 提取码：3avj </br>
 
 ### 写作推荐课程
 **黎老师写作**：非常非常多干货的写作课程，包括信手，两分钟破题，语法团，俩百词，点句成金，超级多的录屏，每个录屏都是高质量，真的都能收获特别特别多，感觉像打通了任督二脉。</br>
@@ -54,23 +55,31 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 **fiona口语**:独立口语就套二姐的段子就好啦一共十个段子超级好用，可以去喜马拉雅先听听托福口语Fiona的音频绝对不会失望哒，如果有半年以上时间备考的话，可以好好捋一捋fiona姐姐的课前礼包，好好背几遍单词，然后好好上课，课后好好练习。</br>
 &emsp; fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
 &emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
-
-
-
-1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
+&emsp; fiona2018年08期口语链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
-fiona口语链接：链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
-fiona口语课资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
-威学ZTPO：链接：https://pan.baidu.com/s/1I8PZqwuubyYxXr_We-fXYQ 提取码：e9lw </br>
-口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
+吴奇老师口语课程：链接：https://pan.baidu.com/s/1f22XN6Qgl_G2u5YPwiB6YQ 提取码：3he3 </br>
+
+### 阅读推荐课程
+**费扬阅读**：以逻辑词为基础，定位+筛信息，找关系。还有绝对词、变化、上升下降慎选，好多这些原则技巧告诉你，但是技巧也是建立在自己提升本身基础能力上运用，不要盲目追逐高分技巧 </br>
+&emsp; 201708年期链接：https://pan.baidu.com/s/1lpmwdW5dWXEBmDAuEjMaug 提取码：hdfc </br>
+&emsp; 201808年期链接：https://pan.baidu.com/s/1nWlyHBWDK9KFZRga8TrY5A 提取码：q0cn </br>
+刘聪老师阅读：链接：https://pan.baidu.com/s/1lHUdFRfpHLukAqY0GheS2w 提取码：aueb </br>
+
+### 实用工具和真题
+1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
+威学ZTPO：链接：https://pan.baidu.com/s/1MzaqEc__gAFzcUC9OuMtlQ 提取码：ooz5 </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
 </br>
+
+### 备考建议和经验分享
 托福备考资料指导和老师推荐：</br>
 * 写作：黎老师，王子睿，小站李世优 </br>
 * 口语：Fiona, 小站大花，威学fancy </br>
 * 听力：Fiona, 微臣琦叔 </br>
 * 阅读：考满分费扬老师 </br>
+
+群内小伙伴也写了一份详细万字的备考心得和资料使用心得，欢迎交流，http://bbs.gter.net//forum.php?simpletype=yes&mod=viewthread&tid=2287967&page=&mobile=yes
 
 【最新】由于篇幅有限并且链接经常失效，需要新的或者全的，或者备考建议可以加群联系群主，或联系管理员超越女神，qq号1474014070
 
