@@ -79,7 +79,8 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 * 听力：Fiona, 微臣琦叔 </br>
 * 阅读：考满分费扬老师 </br>
 
-群内小伙伴也写了一份详细万字的备考心得和资料使用心得，欢迎交流，**72-108！托福提分攻略全揭秘&新政首考体验&机构选择**，点击链接：https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/TOEFL/README.md
+群内小伙伴也写了一份详细万字的备考心得和资料使用心得，欢迎交流，**72-108！托福提分攻略全揭秘&新政首考体验&机构选择!(https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/TOEFL/README.md
+)**，点击链接：https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/TOEFL/README.md
 
 【最新】由于篇幅有限并且链接经常失效，需要新的或者全的，或者备考建议可以加群联系群主，或联系管理员超越女神，qq号1474014070
 【欢迎加入托福gre备考夸夸qq群】865560622 </br>
