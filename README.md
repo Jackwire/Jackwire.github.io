@@ -53,7 +53,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 
 ### 口语推荐课程
 **fiona口语**:独立口语就套二姐的段子就好啦一共十个段子超级好用，可以去喜马拉雅先听听托福口语Fiona的音频绝对不会失望哒，如果有半年以上时间备考的话，可以好好捋一捋fiona姐姐的课前礼包，好好背几遍单词，然后好好上课，课后好好练习。</br>
-&emsp; fiona口语课前资料：链接：https://pan.baidu.com/s/1Z0hthfgDuROxLBaQyomTOA 提取码：4hak </br>
+&emsp; fiona口语课前资料：链接：https://pan.baidu.com/s/1TtNyREmeERbDOI_qPhs63w 提取码：0fan  </br>
 &emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 &emsp; fiona2018年08期口语链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
