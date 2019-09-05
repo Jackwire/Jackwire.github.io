@@ -35,7 +35,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ### 听力推荐课程
 **微臣onepass听力**：琦叔王牌听力，包括救命800，onepass背景知识材料，已经听力班课（2018年09期）</br>
 &emsp; 链接：https://pan.baidu.com/s/1KcbnDY5TTuK9z9zuqX0o7g 提取码：nrge </br>
-**fiona老师听力课程**：二姐会讲记笔记的方法，每节课选一个真题带你精听一遍，此外还会要求背单词、做真题等 </br>
+**fiona老师听力课程**：二姐会讲记笔记的方法，每节课选一个真题带你精听一遍，此外还会要求背单词、做真题等 </br>  
 &emsp; Fiona听力2017年08期链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
 &emsp; Fiona听力2018年08期链接：https://pan.baidu.com/s/1JSW5i4OuBQVt5x8SyJBF8g 提取码：t0dt </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
@@ -68,6 +68,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 ### 实用工具和真题
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
 威学ZTPO：链接：https://pan.baidu.com/s/1MzaqEc__gAFzcUC9OuMtlQ 提取码：ooz5 </br>
+&emsp; (备用链接，放在了谷歌云盘上，请按照上面的翻墙指导下载) https://drive.google.com/drive/folders/1W6-VF03cBpI-0EPiQhvbUUGaMw40wAxL?usp=sharing
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
 </br>
