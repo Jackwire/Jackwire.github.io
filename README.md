@@ -22,8 +22,8 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 
 ### 全套课程（部分机构完整的听说读写课程）
 **威学全套**：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。 </br>
-&emsp; 2018年10期大班课程链接：链接：https://pan.baidu.com/s/1o44ZJcLMVJZOkQ1OKIfXjw 提取码：c6pq  </br>
-&emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1U3bio8xHumEVdf-lo2G4hw 提取码：olzw   </br>
+&emsp; 2018年多期大班课程链接：链接：https://pan.baidu.com/s/1ErEgfHNsDOzaubuSQW0l5Q 提取码：1cbb  </br>
+&emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1Pl0MEI98BRPtPBNubznPww 提取码：h937  </br>
 
 **小站全套**：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读 </br>
 &emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
@@ -99,17 +99,43 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 </br></br>
 <!---->
 ## *雅思
+### 剑桥雅思
+剑桥雅思4-14，有音频，需要的也可以去喜马拉雅，每日英语听力等app听 </br>
+口语最新5到8月机经：链接：https://pan.baidu.com/s/1ngARt3wEveSD6mgri86iIQ 提取码：1fix </br>
+杨帅最新5到8月口语题库和范例：链接：https://pan.baidu.com/s/1iiccFSMBTI7zM1PzJwdgyA 提取码：nt12  </br>
+剑桥雅思4-13：链接：https://pan.baidu.com/s/1aimZmEbEZ6cSgHMNmdwfng 提取码：tnpn </br>
+剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
+
+### 听力推荐课程
+**何琼听力**：老师的课挺好的，听着容易上头哈！每分每秒都是干货，实打实的应试技巧，能够在短时间内减少一些非个人水平的低级错误 </br>
+&emsp; 听力2019年04期链接：https://pan.baidu.com/s/1pTwl5iw3lscq7BTMgd9wcw 提取码：9mh2  </br>
+&emsp; 听力2019年06期链接：链接：https://pan.baidu.com/s/1kHbMXRKDaPEcUVxoQCxvyQ 提取码：8d1h </br>
+**王陆听力**：褒贬不一，但相信王陆语料库大家很多都用过，她的课也有很多人反馈效率低，可以自己先听后再决定 </br>
+&emsp; 听力2019年02期链接：https://pan.baidu.com/s/13KREOlQ7VIIsylDf3w4ElQ 提取码：k5fn   </br>
+&emsp; 听力2019年04期链接：https://pan.baidu.com/s/19oiKlYgUapFT9UDMPu2AJQ 提取码：vjo4   </br>
+**周璐听力**：老师有自己一套的方法，包括错题五问，TAS，听抄等，更科学和系统的提升听力水平，，时间不够的话不建议</br>
+&emsp; 听力2018年10期链接：https://pan.baidu.com/s/1Ckra3w31sX6a-I2Srw_VQw 提取码：q4li   </br>
+教主听力链接：https://pan.baidu.com/s/1U6JHfcFY1Xcpw7lPVu0FsA 提取码：2i6w  </br>
+
+### 阅读推荐课程
+**王希伟阅读**：王希伟就是安安静静上课的老师，废话几乎不说，然后语速也刚刚好，声音也挺好听的=。=他是偏技巧性的老师，每个题型的技巧都会详细说 </br>
+&emsp; 2019年02期链接：https://pan.baidu.com/s/1t82z1gBBou4HKnwtWnzJLQ 提取码：macc  </br>
+&emsp; 2019年04期链接：https://pan.baidu.com/s/1ItvLDVpccrt-eZldWTrwvg 提取码：cwnr  </br>
+Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBtaA 提取码：fu09   </br>
+刘洪波阅读201812期：链接：https://pan.baidu.com/s/16EfVJXnhHFeIu-jakTF8jg 提取码：a00o   </br>
+
+
+
+
+
 杜士明写作：链接: https://pan.baidu.com/s/10n3mfFepge4YRFFt1lr6ZA 提取码: z8aq </br>
 张天真口语：链接: 链接：https://pan.baidu.com/s/1cMVMXf9tTeYIpDxZL1un0Q 提取码：rs10  </br>
 郭佳荣阅读：链接: https://pan.baidu.com/s/1GPiok5k-7wz0fwbRYg3LIQ 提取码: 68ti </br>
 何琼听力：链接: https://pan.baidu.com/s/1WPK-C7rRR2mqAXV-DI3a3g 提取码: uenx </br>
 顾家北写作：链接：链接：https://pan.baidu.com/s/1HyhEBySXjfl-BEeYTfy8Uw 提取码：ysl3 </br>
 周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
-口语最新5到8月机经：链接：https://pan.baidu.com/s/1ngARt3wEveSD6mgri86iIQ 提取码：1fix </br>
-杨帅最新5到8月口语题库和范例：链接：https://pan.baidu.com/s/1iiccFSMBTI7zM1PzJwdgyA 提取码：nt12  </br>
-剑桥雅思4-13：链接：https://pan.baidu.com/s/1aimZmEbEZ6cSgHMNmdwfng 提取码：tnpn </br>
-剑桥雅思14：链接：https://pan.baidu.com/s/1LcvETwtfP2vQZXqW5AJRbw 提取码：jdlc </br>
-由于雅思资料易于和谐，请加群905505803免费获取，完整资料见图片 ![image](雅思资料目录.png)
+
+
 
 ## * GMAT
 GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVRKykAiiw 提取码：5l4x </br> 
