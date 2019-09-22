@@ -123,18 +123,28 @@ Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g50
 &emsp; 2019年04期链接：https://pan.baidu.com/s/1ItvLDVpccrt-eZldWTrwvg 提取码：cwnr  </br>
 Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBtaA 提取码：fu09   </br>
 刘洪波阅读201812期：链接：https://pan.baidu.com/s/16EfVJXnhHFeIu-jakTF8jg 提取码：a00o   </br>
+郭佳荣:非常可爱的老师，表情包超多哈哈哈哈， </br>
+&emsp; 2019年06月链接：https://pan.baidu.com/s/1eZ7ahRw0KPxDbzlM0Vjkmg 提取码：d6ox </br>
 
+### 口语推荐课程
+**帅哥**：杨帅的实力不用说，口语9分，以随性聊天为特色。因此，他最给学生强调的是语音语调。大部分烤鸭应该对帅哥的每日背三句和99句不陌生。他的视频课主要提供的回答思路，帮助我们打破个人心理思维壁垒，说白了就是大胆瞎扯… </br>
+&emsp; 2019年05期链接：https://pan.baidu.com/s/1AZcuXz-smuYGLIbDKLjWmg 提取码：ce85   </br>
+&emsp; 2019年08期链接：https://pan.baidu.com/s/1b6d372WVZbB6SkPLR314mw 提取码：9ivj   </br>
+**黄翰生**：他会跟你讲各种套路，但是不会像其他老师一样让你背素材虽然他喜欢开车，也有点不正经，但实际上挺接地气的。而且他是美国长大，语音木有问题 </br>
+&emsp; 201904期链接：https://pan.baidu.com/s/1uv-Q4BGZAwYnmv5EPTKmNA 提取码：22t2   </br>
+&emsp; 2019年02链接：https://pan.baidu.com/s/19bjjCOmvDNws7GitpZ21gA 提取码：zs7j  </br>
+张天真口语，2019年5月链接：https://pan.baidu.com/s/14GJZW5OrEPz35qLRoQGX3w 提取码：gvmp </br>
+钱多多2019年5月链接：https://pan.baidu.com/s/1kmuBvv1EW317zxh6bxGstg 提取码：ecgn </br>
+于磊201901期链接：https://pan.baidu.com/s/1yhh-xl9LX8WEgTMm08e5Ow 提取码：ficp  </br>
 
-
-
-
-杜士明写作：链接: https://pan.baidu.com/s/10n3mfFepge4YRFFt1lr6ZA 提取码: z8aq </br>
-张天真口语：链接: 链接：https://pan.baidu.com/s/1cMVMXf9tTeYIpDxZL1un0Q 提取码：rs10  </br>
-郭佳荣阅读：链接: https://pan.baidu.com/s/1GPiok5k-7wz0fwbRYg3LIQ 提取码: 68ti </br>
-何琼听力：链接: https://pan.baidu.com/s/1WPK-C7rRR2mqAXV-DI3a3g 提取码: uenx </br>
-顾家北写作：链接：链接：https://pan.baidu.com/s/1HyhEBySXjfl-BEeYTfy8Uw 提取码：ysl3 </br>
-周璐听力：链接: https://pan.baidu.com/s/1ms4IIdn_kUgTu2P7kmUA2Q 提取码: 5kiy </br>
-
+### 写作推荐课程
+**顾加北**：顾家北的书不错，但是网课因人而异 </br>
+&emsp; 2019年04期链接：https://pan.baidu.com/s/1PM5pRln04kaSDx6HH26BzA 提取码：q0hm    </br>
+&emsp; 2019年05期链接：https://pan.baidu.com/s/1SlaOZlfJszb6hv5jMrgopg 提取码：ordo     </br>
+**杜仕明**：浅显易懂，干货很多，风趣幽默的老杜 </br>
+&emsp; 2019年03期链接：https://pan.baidu.com/s/1RQd6BYq34TQmU9f4ujRx-g 提取码：8r41     </br>
+&emsp; 2019年05期链接：https://pan.baidu.com/s/14vFL9kI4te0JnzvngM0evA 提取码：1jlz    </br>
+徐卫2019年01期链接：https://pan.baidu.com/s/1Z5Kjjmp8dG_6wWmUTkR5CA 提取码：51j8   </br>
 
 
 ## * GMAT
