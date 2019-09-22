@@ -7,7 +7,7 @@
 
 ## *翻墙指导
 谷歌访问助手，浏览器插件 https://github.com/haotian-wang/google-access-helper </br>
-使用指导 ： http://www.ggfwzs.com/
+使用指导 ： http://www.ggfwzs.com/  该插件下载地址已经被河蟹，放到了群文件
 
 ## *百度云不限速下载
 pandownload 可真是个神奇的软件，太好用了吧，昨天下载搞得我心力交瘁，结果今天用这款神奇软件十几分钟就下完了。
@@ -67,7 +67,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 
 ### 实用工具和真题
 1819托福真题：链接：https://pan.baidu.com/s/1y1_LbblefM0x2lKWjWN8Og 提取码：kj6s </br>
-威学ZTPO：链接：https://pan.baidu.com/s/1MzaqEc__gAFzcUC9OuMtlQ 提取码：ooz5 </br>
+威学ZTPO：由于该链接很容易被取消，已经整理放到托福群文件，并上传了群内自己版本的ZTPO，请去群里获取，链接：https://pan.baidu.com/s/1MzaqEc__gAFzcUC9OuMtlQ 提取码：ooz5 </br>
 &emsp; (备用链接，放在了谷歌云盘上，请按照上面的翻墙指导下载) https://drive.google.com/drive/folders/1W6-VF03cBpI-0EPiQhvbUUGaMw40wAxL?usp=sharing </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
@@ -97,6 +97,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 要你的命3000：链接：https://pan.baidu.com/s/1FvrDbfqhaS-DMW5L0tJHAg 提取码：njv4  </br>
 Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g507 </br>
 </br></br>
+---
 ## *雅思
 杜士明写作：链接: https://pan.baidu.com/s/10n3mfFepge4YRFFt1lr6ZA 提取码: z8aq </br>
 张天真口语：链接: 链接：https://pan.baidu.com/s/1cMVMXf9tTeYIpDxZL1un0Q 提取码：rs10  </br>
