@@ -146,7 +146,9 @@ Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBta
 &emsp; 2019年05期链接：https://pan.baidu.com/s/14vFL9kI4te0JnzvngM0evA 提取码：1jlz    </br>
 徐卫2019年01期链接：https://pan.baidu.com/s/1Z5Kjjmp8dG_6wWmUTkR5CA 提取码：51j8   </br>
 
-【欢迎加入雅思备考夸夸qq群】905505803 </br>
+
+【**欢迎加入雅思备考夸夸qq群**】 905505803  </br>
+新的机经和资料去群公告和群文件找吧，一起交流，一起进步
 
 
 ## * GMAT
