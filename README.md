@@ -150,6 +150,8 @@ Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBta
 【**欢迎加入雅思备考夸夸qq群**】 905505803  </br>
 新的机经和资料去群公告和群文件找吧，一起交流，一起进步
 
+<img width="150" height="150" src="https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E6%89%98%E7%A6%8F%E7%BE%A4.jpg"/>
+
 ![托福群](https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E6%89%98%E7%A6%8F%E7%BE%A4.jpg)    ![雅思群](https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E9%9B%85%E6%80%9D%E7%BE%A4.jpg)
 
 
