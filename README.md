@@ -150,6 +150,8 @@ Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBta
 【**欢迎加入雅思备考夸夸qq群**】 905505803  </br>
 新的机经和资料去群公告和群文件找吧，一起交流，一起进步
 
+![托福群](群/托福群.png)    ![雅思群](群/雅思群.png)
+
 
 ## * GMAT
 GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVRKykAiiw 提取码：5l4x </br> 
