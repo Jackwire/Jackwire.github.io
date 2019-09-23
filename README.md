@@ -35,7 +35,7 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ### 听力推荐课程
 **微臣onepass听力**：琦叔王牌听力，包括救命800，onepass背景知识材料，已经听力班课（2018年09期）</br>
 &emsp; 链接：https://pan.baidu.com/s/1KcbnDY5TTuK9z9zuqX0o7g 提取码：nrge </br>
-**fiona老师听力课程**：二姐会讲记笔记的方法，每节课选一个真题带你精听一遍，此外还会要求背单词、做真题等 </br>  
+**fiona老师听力课程**：二姐会讲记笔记的方法，每节课选一个真题带你精听一遍，此外还会要求背单词、做真题等  
 &emsp; Fiona听力2017年08期链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
 &emsp; Fiona听力2018年08期链接：https://pan.baidu.com/s/1JSW5i4OuBQVt5x8SyJBF8g 提取码：t0dt </br>
 张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
