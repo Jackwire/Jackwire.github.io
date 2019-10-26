@@ -17,6 +17,7 @@
 &emsp; 2018年多期大班课程链接：链接：https://pan.baidu.com/s/1ErEgfHNsDOzaubuSQW0l5Q 提取码：1cbb  </br>
 &emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1Ca8coWxQdig2xyRs8ApCxQ 提取码：xiop </br>
 &emsp; 2019年05期椰子写作课程链接：链接：https://pan.baidu.com/s/10XitPFlnqAahKxj12uZjkw 提取码：8fe6 </br>
+&emsp; 2019年02期fancy口语备用链接：https://pan.baidu.com/s/1ODpaudwuBKXVdhtxPH69PA 提取码：dggz  </br>
 
 **小站全套**：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读 </br>
 &emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
@@ -57,6 +58,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 &emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 &emsp; fiona2018年08期口语链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
 &emsp; fiona2019年05期口语链接：https://pan.baidu.com/s/1DyXIK1T4ojVgGrnHBU90cQ 提取码：blz3  </br>
+&emsp; fiona2019年09期口语无直播看改革指导就行链接：https://pan.baidu.com/s/1fddWeJDfic_ID5qxEkm4bw 提取码：ud75 </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
 吴奇老师口语课程：链接：https://pan.baidu.com/s/1f22XN6Qgl_G2u5YPwiB6YQ 提取码：3he3 </br>
 
