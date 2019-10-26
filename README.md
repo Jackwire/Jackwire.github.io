@@ -5,14 +5,6 @@
 <!---->
 【建议用电脑打开，或者手机打开后，点击下面的view all】
 
-## *翻墙指导
-谷歌访问助手，浏览器插件 https://github.com/haotian-wang/google-access-helper </br>
-使用指导 ： http://www.ggfwzs.com/  该插件下载地址已经被河蟹，放到了群文件
-
-## *百度云不限速下载
-pandownload 可真是个神奇的软件，太好用了吧，昨天下载搞得我心力交瘁，结果今天用这款神奇软件十几分钟就下完了。
-https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的百度云链接就可以直接下载 </br>
-
 ---
 ## *托福
 ### 基础课程
@@ -23,7 +15,8 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 ### 全套课程（部分机构完整的听说读写课程）
 **威学全套**：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。 </br>
 &emsp; 2018年多期大班课程链接：链接：https://pan.baidu.com/s/1ErEgfHNsDOzaubuSQW0l5Q 提取码：1cbb  </br>
-&emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1Pl0MEI98BRPtPBNubznPww 提取码：h937  </br>
+&emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1Ca8coWxQdig2xyRs8ApCxQ 提取码：xiop </br>
+&emsp; 2019年05期椰子写作课程链接：链接：https://pan.baidu.com/s/10XitPFlnqAahKxj12uZjkw 提取码：8fe6 </br>
 
 **小站全套**：小站的战神班课程也是托福学习比较好的参考，包括大花口语，范霖听力，优优写作，will阅读 </br>
 &emsp; 2018年期链接：https://pan.baidu.com/s/1HZBiUR1O0kF7d1uDbQ3mAQ 提取码：vg7q  </br>
@@ -38,7 +31,10 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 **fiona老师听力课程**：二姐会讲记笔记的方法，每节课选一个真题带你精听一遍，此外还会要求背单词、做真题等  
 &emsp; Fiona听力2017年08期链接：https://pan.baidu.com/s/1i3BrIA2WyzFznretgP88uw 提取码：200w </br>
 &emsp; Fiona听力2018年08期链接：https://pan.baidu.com/s/1JSW5i4OuBQVt5x8SyJBF8g 提取码：t0dt </br>
-张艳听力：链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
+&emsp; Fiona听力2019年05期链接：https://pan.baidu.com/s/1SAn8xlJYgNjkWAVftuwPGg 提取码：tczu </br>
+**张艳听力**：
+&emsp; 2017年链接：https://pan.baidu.com/s/1UkY6REBiX07gM1RTu8fmyg 提取码：3pk1 </br>
+&emsp; 2018年链接：https://pan.baidu.com/s/1S3rpzjRqKE0DPH1I5fQEFA 提取码：mkgr  </br>
 新东方李镇江老师听力：链接：https://pan.baidu.com/s/1xDO4ArBCkP6r5wX0bGOJFg 提取码：12ld </br>
 kmf赵纯老师听力：链接：https://pan.baidu.com/s/1qasyBN4RCOacxEU2Sc2vrw 提取码：3avj </br>
 
@@ -46,6 +42,9 @@ kmf赵纯老师听力：链接：https://pan.baidu.com/s/1qasyBN4RCOacxEU2Sc2vrw
 **黎老师写作**：非常非常多干货的写作课程，包括信手，两分钟破题，语法团，俩百词，点句成金，超级多的录屏，每个录屏都是高质量，真的都能收获特别特别多，感觉像打通了任督二脉。</br>
 &emsp; 2018年11期黎老师写作链接：https://pan.baidu.com/s/1k6-_KNLE-Vzn8xMANVkBSQ 提取码：rvxy  </br>
 &emsp; 2019年01期黎老师写作链接：https://pan.baidu.com/s/1K6QJfbfR0kpK86FvHNh8ZQ 提取码：3d8a </br>
+&emsp; 2019年02月黎老师写作链接：https://pan.baidu.com/s/1gDJKFi9k7K3DKTXu83jufA 提取码：k78i  </br>
+&emsp; 黎老师写作最新的第六套信手没有视频，直接背就好链接：https://pan.baidu.com/s/1hqoBiGLeeKVHWtTy3YhYug 提取码：fk14 </br>
+
 **子睿老师写作**：真正写作能力，不建议初学者，2018期链接：https://pan.baidu.com/s/1FnEiHfKBfHLnnIMu_z5Wkw 提取码：r3kq </br>
 onepass微臣写作：链接：https://pan.baidu.com/s/1DBsOe-kwRvcjlQTUlarJDQ 提取码：2p51 </br>
 kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ 提取码：5zty </br>
@@ -56,6 +55,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 &emsp; fiona口语课前资料：链接：https://pan.baidu.com/s/1TtNyREmeERbDOI_qPhs63w 提取码：0fan  </br>
 &emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 &emsp; fiona2018年08期口语链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
+&emsp; fiona2019年05期口语链接：https://pan.baidu.com/s/1DyXIK1T4ojVgGrnHBU90cQ 提取码：blz3  </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
 吴奇老师口语课程：链接：https://pan.baidu.com/s/1f22XN6Qgl_G2u5YPwiB6YQ 提取码：3he3 </br>
 
@@ -71,6 +71,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 &emsp; (备用链接，放在了谷歌云盘上，请按照上面的翻墙指导下载) https://drive.google.com/drive/folders/1W6-VF03cBpI-0EPiQhvbUUGaMw40wAxL?usp=sharing </br>
 托你的福1月听力和阅读听力真题：链接：https://pan.baidu.com/s/1SLcGmttBUvkNOP4BimI-Lw 提取码：9rgb  </br>
 托福模考软件，不是小站那种：链接：https://pan.baidu.com/s/18n8hOtZFzT7TrN3O8v6M6w 提取码：kktu  </br>
+子睿老师托福改革模考包：链接：https://pan.baidu.com/s/1XZw3-VOZDAjEESf3T1xVwA 提取码：o9lx  </br>
 </br>
 
 ### 备考建议和经验分享
@@ -96,6 +97,14 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 维夕写作：链接：https://pan.baidu.com/s/1TWPmUOqrEFoM0lAfqGRXxQ 提取码：imwb </br>
 要你的命3000：链接：https://pan.baidu.com/s/1FvrDbfqhaS-DMW5L0tJHAg 提取码：njv4  </br>
 Magoosh:链接：https://pan.baidu.com/s/15HVumMMSNCuh63v_eUU0cw 提取码：g507 </br>
+
+**微臣onepass单科系列**
+&emsp; 写作链接：链接：https://pan.baidu.com/s/1XnQSRO3T8HlgcK68ijbNeA 提取码：nogo </br>
+&emsp; 填空串讲链接：https://pan.baidu.com/s/1oo8miFpZd4HNn_WGFBkn3g 提取码：uuj0 </br>
+&emsp; 阅读200串讲链接：https://pan.baidu.com/s/18nTtR8c0Uht1g_TnD4fLqQ 提取码：hmo2 </br>
+&emsp; 数学链接：https://pan.baidu.com/s/10VXyyfR0HgDh1oZeDSidrw 提取码：lju7 </br>
+&emsp; 填空GWC1100串讲链接：https://pan.baidu.com/s/11jBqd5XeZ_ZoXpUkC46-pg 提取码：r7sk </br>
+
 </br></br>
 <!---->
 ## *雅思
@@ -172,8 +181,17 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 https://sun.sharedaka.com/v2/habit/share_h5/visit?habitId=2399881&openId=ochvq0E3aVHraG4VpbMkHpbhn2pw&code=ae701f </br>
 </br>
 
+## *翻墙指导
+谷歌访问助手，浏览器插件 https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/tree/master/%E7%BF%BB%E5%A2%99%E6%8C%87%E5%AF%BC </br>
+使用指导 ： http://www.ggfwzs.com/  该插件下载地址已经被河蟹，放到了夸夸群群文件，该插件只能辅助范文谷歌系应用
+
+
+## *百度云不限速下载
+pandownload 可真是个神奇的软件，太好用了吧，昨天下载搞得我心力交瘁，结果今天用这款神奇软件十几分钟就下完了。
+https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的百度云链接就可以直接下载 </br>
+
 ## * 云短信，垃圾短信电话注册防止骚扰
-https://www.pdflibr.com/</br>
+那些中介广告有多可恶，哈哈哈哈，兄弟姐妹们应该知道吧，这个申请你肯定用得上， https://www.pdflibr.com/</br>
 
 使用方法打开链接就行，防止各种机构骚扰电话，例如小站注册，各种留学咨询需要给电话的时候，就靠它</br></br>
 </br>
