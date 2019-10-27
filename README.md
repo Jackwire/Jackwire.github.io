@@ -58,7 +58,8 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 &emsp; 口语真题册：链接：https://pan.baidu.com/s/13w7QLt_uh02Ucz_GehApxg 提取码：2z16 </br>
 &emsp; fiona2018年08期口语链接：https://pan.baidu.com/s/18l61LHuOaCfeCiPfATXJaw 提取码：j0et  </br>
 &emsp; fiona2019年05期口语链接：https://pan.baidu.com/s/1DyXIK1T4ojVgGrnHBU90cQ 提取码：blz3  </br>
-&emsp; fiona2019年09期口语无直播看改革指导就行链接：https://pan.baidu.com/s/12A1Aj8P7WKkwAvD-6GbHuQ 提取码：zu11  </br>
+&emsp; fiona2019年09期口语无直播看改革指导就行链接：链接：https://pan.baidu.com/s/1SAON0gRbMFhcJxf4R9UsDg 提取码：9o36   </br>
+&emsp; fiona2019年09期口语讲义：链接：https://pan.baidu.com/s/1vbWikgMjcUhKAfGLggVj9Q 提取码：1yvq   </br>
 子睿口语视频：链接：https://pan.baidu.com/s/1avRYQcGXloI0MvfCca0z-w 提取码：78oc </br>
 吴奇老师口语课程：链接：https://pan.baidu.com/s/1f22XN6Qgl_G2u5YPwiB6YQ 提取码：3he3 </br>
 
