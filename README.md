@@ -90,6 +90,7 @@ kmf阿武老师写作：链接：https://pan.baidu.com/s/129g9VKGy-UeWLuzGtXafqQ
 
 【最新】由于篇幅有限并且链接经常失效，需要新的或者全的，或者备考建议可以加群一起交流 </br>
 【欢迎加入托福gre备考夸夸qq群】865560622 </br>
+**抱歉各位，之前几个备考屌丝建群的时候没想到群会这么火，一群已经2000人，如果一起交流，请先加二群，等有人退群，我们再一起拉**
 &emsp; 一群如果满了，请加托福GRE备考夸夸二群209188583 </br>
 【欢迎加入雅思备考夸夸qq群】905505803 </br>
 </br>
@@ -163,9 +164,10 @@ Jack2018年11月阅读：链接：https://pan.baidu.com/s/1J0GKxTpJhzB1NWDlkbBta
 
 
 【**欢迎加入雅思备考夸夸qq群**】 905505803  </br>
-新的机经和资料去群公告和群文件找吧，一起交流，一起进步
-
+新的机经和资料去群公告和群文件找吧，一起交流，一起进步 </br>
+**抱歉各位，之前几个备考屌丝建群的时候因为实在无法忍受中介机构之风，建的几个小群，没想到群会这么火，一群已经2000人，如果一起交流，请先加二群，等有人退群，我们再一起拉，也希望我们的群传统一直延续下去**
 <img width="200" height="250" src="https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E6%89%98%E7%A6%8F%E7%BE%A4.jpg"/>     <img width="200" height="250" src="https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E9%9B%85%E6%80%9D%E7%BE%A4.jpg"/>
+ <img width="200" height="250" src="https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/diy%E7%BE%A4.jpg"/>  <img width="200" height="250" src="https://github.com/Jackwire/TOFEL_IELTS_GRE_my-Learning-materials-/blob/master/%E7%BE%A4/%E6%89%98%E7%A6%8F%E4%BA%8C%E7%BE%A4.jpg"/>
 
 
 ## * GMAT
