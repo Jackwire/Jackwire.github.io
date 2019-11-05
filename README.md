@@ -181,7 +181,8 @@ GMAT分阶段学习大礼包：链接：https://pan.baidu.com/s/12jqQXnYEcqI0KVR
 美国申请全系列视频,学校介绍：链接：https://pan.baidu.com/s/1qwbvWgMC-FJCLJcMXsLqIw 提取码：l1x0 </br>
 材料准备和时间规划：链接：https://pan.baidu.com/s/1AECz1sA-pM4OfOrm34YM0A 提取码：853g </br>
 新东方申请问题答疑课：链接：https://pan.baidu.com/s/1y07ekIPzHCs2blopqYuVFA 提取码：cw7h </br>
-【欢迎加入留学申请夸夸qq群】337699641，点击链接加入群聊【美英申请夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
+cv，ps个人陈述，RL推荐信很多材料的模板范文就不发到github了，大家直接进群里的群文件就可以 </br>
+【欢迎加入留学申请夸夸qq群】337699641，点击链接加入群聊【申请diy互助夸夸群】：https://jq.qq.com/?_wv=1027&k=5vMGGxh </br>
 </br>
 
 ## * 打卡小程序
@@ -206,4 +207,4 @@ https://www.baiduwp.com/   打开这个网址，输入你需要下载东西的�
 【失效问题】如果哪个资料链接失效，请加群告知 </br>
 【欢迎加入托福gre备考夸夸qq群，一起夸夸，群文件更多资料，群友会一起寻找，欢迎加入】865560622 </br>
 【欢迎加入雅思备考夸夸qq群，一起夸夸】905505803 </br>
-【欢迎加入美英申请夸夸qq群】337699641 </br>
+【欢迎加入申请diy互助夸夸qq群】337699641 </br>
