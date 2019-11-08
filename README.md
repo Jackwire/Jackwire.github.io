@@ -9,7 +9,7 @@
 ## *托福
 ### 基础课程
 此部分包括了7天搞定英语语法，lisa美语发音，口语发音课程，各个机构的词汇课程：猴哥，张红岩，无老师，曲根10000词汇，词霸营等等，以及TED演讲视频集合 </br>
-&emsp; **单词语音基础课**：链接：https://pan.baidu.com/s/1QiHfTi8WGKVjD3rUXfCV6A 提取码：pn3g </br>
+&emsp; **单词语音基础课**：链接：https://pan.baidu.com/s/1cNHNaVKxdBalOOmHDrOi1A 提取码：rvac  </br>
 &emsp; 托福考试介绍：链接：https://pan.baidu.com/s/1em8zpjigG7zj5O4959ccFg 提取码：qdlw </br>
 
 ### 全套课程（部分机构完整的听说读写课程）
