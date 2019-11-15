@@ -15,7 +15,7 @@
 ### 全套课程（部分机构完整的听说读写课程）
 **威学全套**：威学的网络大班是很多托福学习的入门资料，包括口语fancy老师，阅读鑫哥，写作椰子，听力杰哥。 </br>
 &emsp; 2018年多期大班课程链接：链接：https://pan.baidu.com/s/1ErEgfHNsDOzaubuSQW0l5Q 提取码：1cbb  </br>
-&emsp; 2019年02期大班课程链接：链接：https://pan.baidu.com/s/1Ca8coWxQdig2xyRs8ApCxQ 提取码：xiop </br>
+&emsp; 2019年05期大班课程链接：链接：https://pan.baidu.com/s/1k-0QdggbDK5riGu9B_Hb0Q 提取码：dwjg  </br>
 &emsp; 2019年05期椰子写作课程链接：链接：https://pan.baidu.com/s/10XitPFlnqAahKxj12uZjkw 提取码：8fe6 </br>
 &emsp; 2019年02期fancy口语备用链接：https://pan.baidu.com/s/1ODpaudwuBKXVdhtxPH69PA 提取码：dggz  </br>
 
