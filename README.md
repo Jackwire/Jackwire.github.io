@@ -23,8 +23,10 @@ GMAT备考群|492486118|500
 留学申请交流群|1079820032|2000
 
 ## ★★★备考建议群★★★
-群友们备考建议和资料使用建议专区
-托福备考及资料使用建议：[托福](./files/sugestions/toefl1.md)
+群友们备考建议和资料使用建议专区 </br>
+托福备考及资料使用建议：[托福](./files/sugestions/toefl1.md) &nbsp;&nbsp;-by &nbsp; 没名字大佬 </br>
+gre备考及资料使用建议：[gre](./files/sugestions/gre.md)   &nbsp;&nbsp;-by &nbsp; 没名字大佬 </br>
+(ps:欢迎更多优秀群友分享经验) </br>
 
 ## ★★★托福★★★
 ### 听力
