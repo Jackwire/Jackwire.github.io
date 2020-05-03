@@ -22,7 +22,7 @@ GMAT备考群|492486118|500
 计算机专业留学申请群|519616656|500
 留学申请交流群|1079820032|2000
 
-## ★★★备考建议群★★★
+## ★★★备考建议专区★★★
 群友们备考建议和资料使用建议专区 </br>
 托福备考及资料使用建议：[托福](./files/sugestions/toefl1.md) &nbsp;&nbsp;-by &nbsp; 没名字大佬 </br>
 gre备考及资料使用建议：[gre](./files/sugestions/gre.md)   &nbsp;&nbsp;-by &nbsp; 没名字大佬 </br>
